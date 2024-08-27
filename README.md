@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @4Mation77
+- 👋 Hi, I’m @Yesus Ena
 - 👀 I’m interested in data analytics
 - 🌱 I’m currently learning BIA
 - 💞️ I’m looking to collaborate on with peers
